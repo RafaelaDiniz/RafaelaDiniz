@@ -2,7 +2,7 @@
    
    ENTP 🤓
    rafaela2106@hotmail.com 📝
-   
+### Cursando Bacharelado Interdisciplinar em Ciencias e Tecnologia, Universidade Federal do ABC    
 ### Ensino Superior em Administração de empresas, Fecap Fundação Escola de Comercio Alvares Penteado em SP 👩‍🎓
   
 #### Trilha de aprendizado no repositório 
