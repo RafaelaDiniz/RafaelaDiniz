@@ -1,4 +1,4 @@
-#  Rafaela Azevedo Diniz, 33 anos. 👱‍♀️
+#  Rafaela Azevedo Diniz, 34 anos. 👱‍♀️
    
    ENTP 🤓
    rafaela2106@hotmail.com 📝
@@ -11,7 +11,7 @@
 
 
 ## Linux, Mac OS, Windows 👩‍💻
-## Dev, PHP, Java, Git, lógica.👩‍💻
+## Dev, PHP, Java, Phyton, Git, lógica.👩‍💻
 
 
 ## O desafio é o combustível da minha motivação! 🏆
